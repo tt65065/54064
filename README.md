@@ -20,4 +20,4 @@
 
 现在就将本站加入书签，每天打开一看，不仅能追更，还可能遇到意外惊喜。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/tt65065/54064 ）</span>
